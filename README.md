@@ -2,22 +2,7 @@
 
 Programmatic poems generated from a corpus of text spanning nearly ten years of my writing.
 
-More information [here](https://phrancism.com/idiolectic).
-
-
-## Judgments
-Judgments  
-To turn and shuffled through  
-Here in his nose  
-That theory  
-Parents and though they would have used  
-I drank  
-Knowing that idea  
-That theory  
-Associated  
-Not Owen’s obscure war  
-The dried  
-A new perspective
+More information and poems [here](https://phrancism.com/idiolectic).
 
 ## Timothy's Soiree
 In Timothy’s soirée  
@@ -54,13 +39,3 @@ To any of that passionate
 Filled with cynicism  
 He was wont to stop them  
 For one that Kenny what seemed  
-
-## After Alfred
-Someone somewhere  
-Dissolve only to both ramblings  
-Ad infinitum until  
-For attention diverted  
-But still out hopping  
-Up stairs he stepped  
-Music that seemed to cope  
-Waning after Alfred  
